@@ -72,7 +72,7 @@
 
 ### महत्वाच्या लिंक्स  
 - **[भरती जाहिरात ईथे क्लिक करा](#)**  
-- **[Apply Online ईथे क्लिक करा](http://www.sarkariwarta.com.com/)**  
+- **[Apply Online ईथे क्लिक करा](http://www.sarkariwarta.com/)**  
 - **[अधिकृत वेबसाईट](http://www.sarikariwarta.com/)**  
 
 ---  
